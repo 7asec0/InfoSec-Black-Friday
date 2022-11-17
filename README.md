@@ -91,6 +91,11 @@ https://platzi.com/blackfriday
 30% off one year subscription \
 Deal ends: 25th November
 
+7ASecurity - 100% Hands-On Training \
+https://store.7asecurity.com/discount/BFCM50  
+50% off all courses \
+Deal Ends: 2nd December
+
 ## Mini Course Bundles:
 
 ## Hardware:
